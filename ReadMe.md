@@ -1,4 +1,4 @@
-
+I Like to do new things and AI is great.
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://linkedin.com/in/avedant21) 
 
